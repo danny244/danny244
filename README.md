@@ -3,7 +3,7 @@
 Lagos State, 112005  
 idowudaniel289@gmail.com  
 08165485984  
-[LinkedIn Profile](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile) | [GitHub Profile](https://github.com/danny244)
+[LinkedIn Profile](https://linkedin.com/in/idowu-daniel-4a185b272) | [GitHub Profile](https://github.com/danny244)
 
 ---
 
