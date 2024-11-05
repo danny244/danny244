@@ -1,4 +1,4 @@
-# Idowu daniel
+# Daniel idowu
 
 Lagos State, 112005  
 idowudaniel289@gmail.com  
